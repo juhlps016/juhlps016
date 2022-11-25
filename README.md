@@ -1,1 +1,1 @@
-- 1e alina do santa maria goretti moro em paiçandu
+- 1E aluna do santa maria goretti moro em paiçandu
